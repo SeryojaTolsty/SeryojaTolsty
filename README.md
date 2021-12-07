@@ -6,7 +6,7 @@
 
 
 
-- I HATE FUCKING GIT BUILDERS, BECAUSE THAT GUYS IS REAL FUCKING FAGS!
+- I HATE FUCKING GIT BUILDERS, BECAUSE THAT GUYS ARE REAL FUCKING FAGS!
 
 <!---
 SeryojaTolsty/SeryojaTolsty is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
